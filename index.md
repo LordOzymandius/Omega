@@ -12,6 +12,6 @@
 >>> #### He has Dementia...
 ![Ultimate Badass](undefeatable.jpg)
 
-Do you wish to engage in [Eternal Battle?](http://LordOzymandius.github.io/Omega/Death
+Do you wish to engage in [Eternal Battle?](http://LordOzymandius.github.io/Omega/Death)
 
 Although if you are hungry you may wish simply to engage in [soup.com](https://i.redd.it/als096p9m5d21.jpg) instead, I wouldn't blame you.
